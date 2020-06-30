@@ -28,3 +28,8 @@ Zitat von The Rock:
 >  und Gesten kommen. Du wirst immer gewinnen, wenn du ruhig bleibst und den Leuten freundlich gegenübertrittst. Eine derartige Gelassenheit 
 >  vermittelt den anderen unterschwellig, dass du ihnen überlegen bist.
 > Himmel. Ich dachte, jeder Tag wäre ein Nationaler Pfannkuchentag.
+
+
+
+
+<img src="https://images-na.ssl-images-amazon.com/images/I/81r5xBulj2L._AC_SX522_.jpg"/>
