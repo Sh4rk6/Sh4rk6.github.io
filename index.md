@@ -4,3 +4,11 @@ ist ein US-amerikanisch-kanadischer[5] Schauspieler und ehemaliger Wrestler afro
 Abstammung. Als Wrestler erhielt er insgesamt zehnmal den höchsten Titel der WWE und war damit einer der 
 erfolgreichsten Akteure der Liga. Da sein Vater Wayde Bowles und sein Großvater Peter Maivia ebenfalls 
 Wrestler waren, galt er als der erste „Superstar der dritten Generation“.
+
+## Charakter Eigenschaften
+* liebt Autos
+* Trainiert jeden Tag
+* liebt die Schauspielerei
+* liebt Filme
+* Kocht als Hobby leidenschaftlich
+
